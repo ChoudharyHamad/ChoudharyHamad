@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ChoudharyHamad
 - 👀 I’m interested in HACKING.
-- 🌱 I’m currently learning 12th class.
+- 🌱 I’m currently study in 12th class.
 - 💞️ I'm single.
 - 📫 I'm from Pakistan.
 
